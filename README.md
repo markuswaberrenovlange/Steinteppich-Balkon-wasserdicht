@@ -5,6 +5,8 @@ Ein Balkon ist oft unser liebster Rückzugsort an sonnigen Tagen. Doch mit der Z
 Ein eleganter Belag aus kleinen Marmor- oder Quarzkieseln fühlt sich hervorragend an und verleiht jedem Außenbereich eine edle Optik. Doch eine entscheidende Frage verunsichert viele Hausbesitzer: Ist ein [**Steinteppich Balkon wasserdicht**](https://renovlange.de/blog/wasserdicht-steinteppich-fuer-balkon-verlegen)?
 
 Hier herrscht oft ein gefährlicher Irrtum, der ohne das richtige Fachwissen zu teuren Bauschäden führen kann. In diesem Ratgeber erfahren Sie die ungeschminkte Wahrheit und wie Sie Ihren Balkon dauerhaft vor Feuchtigkeit schützen.
+<img width="1672" height="941" alt="Steinteppich Balkon_ Wasserdicht_" src="https://github.com/user-attachments/assets/46bd8c4d-c2a0-4245-ad0d-17f03009c06a" />
+
 
 ### 💡 Auf einen Blick (Direct Answer)
 
